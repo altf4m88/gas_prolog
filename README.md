@@ -1,0 +1,1 @@
+hayoooo ngapain kesini
